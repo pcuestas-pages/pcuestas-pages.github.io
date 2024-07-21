@@ -20,8 +20,8 @@ I'm a 22-year-old student from Madrid, Spain, and I'm coming to Switzerland in S
 
 #### Contact & more information
 
-- Email: pablocuestasierra@gmail.com
+- Email: [pablocuestasierra@gmail.com](mailto:pablocuestasierra@gmail.com)
 
-- Linkedin page: https://www.linkedin.com/in/pablocuestasierra/
+- Linkedin page: [https://www.linkedin.com/in/pablocuestasierra/](https://www.linkedin.com/in/pablocuestasierra/)
 
 
