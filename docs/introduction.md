@@ -16,7 +16,7 @@ I'm a 22-year-old student from Madrid, Spain, and I'm coming to Switzerland in S
 
 - I love cooking and enjoy trying out new recipes.
 
-- I enjoy practicing almost any kind of sport, from basketball and water polo to cycling and hiking. Staying active is important to me, and I'm always up for joining any group activities or exploring new sports.
+- I enjoy practicing almost any kind of sport, from basketball and water polo to cycling and hiking. Staying active is important to me, and I'm always up for joining group activities or exploring new sports.
 
 - I also like traveling. Last week, I was in Seville as a volunteer for the European Congress of Mathematics. This summer I also plan to do the _Camino de Santiago_ and visit Marrakesh and London.
 
